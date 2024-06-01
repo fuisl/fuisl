@@ -11,7 +11,7 @@
 - I embrace novelty and creativity.
 - I play games (CS, Val, Elden Ring, etc.) 
 - I love music
-- Learning AI, ML, DL in near future ✨
+- Learning AI
 
 ### Some of the badges I think is fit in this introduction :3
 
